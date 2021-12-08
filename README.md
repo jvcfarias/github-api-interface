@@ -4,4 +4,4 @@
 
 Let me know if you may have any suggestions, I would be looking forward for your contact. 
 
-mailto: farias.joaovictor@gmail.com 
+Hit me up at: farias.joaovictor@gmail.com 
